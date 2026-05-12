@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare geckoterminal sniper bot | trailing-stop + slippage-control, the #1 geckoterminal sniper bot. Includes trailing-stop and slippage-control for a
 
 
 
